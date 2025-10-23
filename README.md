@@ -1,1 +1,2 @@
 # Desarrollo-de-la-agricultura
+No obstante que desde algunos años antes de 1880 se registró la exportación de cereales, esta actividad continuó manteniendo su característica variabilidad hasta la última decena del siglo xix. En efecto la de trigo debió esperar a 1893 para saltar bruscamente al millón de toneladas y mantener volúmenes similares: y la de maíz, si bien en 1890 ya enviaba al exterior 700 mil toneladas, recién a partir de 1895 cifras de indudable valor le acuerdan el carácter de una actividad afianzada.
